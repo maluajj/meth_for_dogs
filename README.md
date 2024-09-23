@@ -1,2 +1,2 @@
 # meth_for_dogs
-the earth is flat because you are fat
+watch the dogs play in the field. they are stupid.
